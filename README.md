@@ -2,7 +2,7 @@
 - 👀 I’m interested in being apart of something greater than myself.
 - 🌱 I’m currently learning python ...
 - 💞️ I’m looking to collaborate on gaming design.
-- 📫 How to reach me: ken.ralph.h@gmail.com
+- 📫 How to reach me: provide an appropiate reason why.
 - ⚡ Fun fact: I am in love with octopi.
 
 <!---
